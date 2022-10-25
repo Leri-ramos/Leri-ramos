@@ -1,6 +1,8 @@
                                                      Hi there 👋, I'm Valéria
                                                                       
-   🌱  
+     🎓 Analise e Desenvolvimento de Sistemas - Centro Universitário Ateneu (UniAteneu) 
+     
+    
    
    
  
